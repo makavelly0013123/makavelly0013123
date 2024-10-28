@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @makavelly0013123
+- 👀 I’m interested in selling data security solutions and have been an advisor to the Los Angeles Information Security Systems Association board of directors for 3 years
+- 🌱 I’m am constantly adding to my skill sets around data security and new AI products that help such as Microsoft Generative AI solutions such as Sentinel and Security CoPilot.
+- 💞️ I’m looking for that perfect small start up that can fully leverage my skills, network and work ethic
+- 📫 How to reach me is best on my Linkedin profile https://www.linkedin.com/in/berniegoulet/
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I once presented on Data Security in the Board Room of the New York Stock Exchange to most of the major Banks CFO's on behalf of Microsoft. 
+-  One last thing - I am eager to find my next big hit - I have had several companies that achieved successful exits at least partly thanks to my work and introductions. Let's have virtual coffee and talk!
